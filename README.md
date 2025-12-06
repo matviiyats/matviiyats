@@ -1,3 +1,3 @@
-## Good morning 👋
+## 👋
 
-***Learning and working on some projects here when I have enough motivation***
+***The definition of genius is taking the complex and making it simple***
